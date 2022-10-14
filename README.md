@@ -9,5 +9,5 @@ I'm developer junior, and currently studying to improve myself, at [Rocketseat](
 
 #### Contacts
 
-Email: kelvingomesjp@gmail.com
-Linkedin: https://www.linkedin.com/in/kelvin-vinicius-918981229/
+-Email: kelvingomesjp@gmail.com
+-Linkedin: https://www.linkedin.com/in/kelvin-vinicius-918981229/
